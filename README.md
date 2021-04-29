@@ -3,7 +3,7 @@ Hi I'm a kid interested in programming. I've been doing an internship for the pa
 Other interests include: 
   - Languages (good in German, trying in French and Serbian, FYI Bulgarian is my mother tongue)
   - Music (Guitar and a little bit of drums)
-  - Fitness (DL, squat, bench, calisthenics)
+  - Fitness and Sports
   - Chess (basically wasting my time on chess.com)
   - Poetry
 
